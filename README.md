@@ -8,7 +8,6 @@
 - outdoor lover 🏔
 - hobbyist baker 🥖
 - amateur bass guitar player 🎸
-- I [blog](https://liliankasem.com/) sometimes ✍️
 
 #### Work Stuff
 
